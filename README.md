@@ -1,2 +1,2 @@
 # Marketing_Personal-Selling
-Topic wise notes on Personal Selling (Marketing).
+Topic wise powerpoint presentation on Personal Selling (Marketing).
